@@ -1,1 +1,1 @@
-# Projeto-da-prova-pr-tica-de-tecnologia
+# Projeto-da-prova-pratica-de-tecnologia
